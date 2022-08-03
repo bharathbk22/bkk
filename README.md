@@ -8,3 +8,9 @@ im back
 
 
 .
+
+done for the day!
+
+not yet 
+
+ok
